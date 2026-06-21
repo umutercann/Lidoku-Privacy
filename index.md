@@ -44,4 +44,4 @@ We may update our Privacy Policy from time to time. Thus, you are advised to rev
 
 ## Contact Us
 
-If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at umutercan@example.com *(Lütfen yayınlamadan önce buraya gerçek e-posta adresinizi girin)*.
+If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us at umutercan550@gmail.com.
